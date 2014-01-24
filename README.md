@@ -20,3 +20,13 @@ Unknown.
 
 The cliff
 ---------
+
+Extended family at a river, with a cliff on each side. Cliffs joined by one of those "thin plank of wood suspended by chains" bridges, high high up. River is shallow. Cliff on one side has a climbing-wall for people to be guided around while climbing it. It's not very high. I am by the river side with an uncle, who is a noted climber. We are watching his daughter on the climbing wall. She is used to climbing. She falls off, and is left screaming and dangling from the safety rope. The guide pulls her up, but fails to get her over the edge as she is screaming too much. I dash over the river and climb the wall, then pull her up. She does not stop screaming. My uncle and I force her towards the bridge. She refuses with all her strength to cross it. Next thing I know, her emotions are mine. I am on the bridge but I am deadly scared of the height, whereas before it was fine. I feel as though I will die if I stay on the bridge. My mind turns to flying in a plane, and decides that's also a bad thing. I wake wth fear still with me.
+
+Source:
+
+Talking about travelling via plane, sister being a teenager and speaking to my uncle.
+
+Meaning:
+
+Empathy for those who seem childish or stubborn. Fear of heights.
