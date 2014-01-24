@@ -15,7 +15,7 @@ Talking about school with friends.
 
 Meaning:
 
-Unknown.
+Unknown. It focuses a lot around being able to sense who someone was and their intentions without being able to see them properly. Perhaps that means something?
 
 
 The cliff
