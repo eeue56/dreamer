@@ -1,7 +1,7 @@
 dreamer
 =======
 
-Dream journal of vivid dreamer
+Dream journal of lucid dreamer
 
 
 The barn
