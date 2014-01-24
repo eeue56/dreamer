@@ -30,3 +30,16 @@ Talking about travelling via plane, sister being a teenager and speaking to my u
 Meaning:
 
 Empathy for those who seem childish or stubborn. Fear of heights.
+
+The children
+------------
+
+I am a small boy again. 7 or 8. There are thousands of other children around me. My brother is there. We are all joined somehow, but I don't see how. The dream ends.
+
+Source:
+
+Unsure, but I was thinking about my childhood earlier.
+
+Meaning:
+
+?
