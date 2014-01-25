@@ -56,3 +56,16 @@ Seeing friend on FB.
 Meaning:
 
 ?
+
+The revolution
+--------------
+
+I am in a country going through a revolution. I am friends with people from the revolution. We create a plan to rob the local army base of their money and aircraft. We pay people £20,000 to join us in what will probably be a suicide mission. One of these is a girl who's boyfriend works at the army base. We use her privallages to get inside the civilian section, where they have several hundred people working at sewwing machines. We progress through this part, until we find the sacks of money. We load the sacks of money into a car. I and the girl and someone else get in the car. The others proceed into the main army base. In there, they see two guards in bright, plastic-green uniforms. They have tanks not unlike the toy tanks I had as a child. They pass through the guards, disguised as civilians from the sewing factory. They reach the aeroplanes and leap into action, knocking out those in their way and jumping into the plane. Every single one of them is killed. Those of us in the car make our escape. The girl is crying as she betrayed her lover and seeing death struck hard. 
+
+Source:
+
+Ukraine revolution images?
+
+Meaning:
+
+?
