@@ -43,3 +43,16 @@ Unsure, but I was thinking about my childhood earlier.
 Meaning:
 
 ?
+
+The bag
+-------
+
+I am on a surprise visit to friends I made in another country. I am cloaked, and carrying a huge huge bag. The bag makes movement in any direction other than forward very difficult. I spot one of my friends from afar with someone, and decide to try to catch up to them. The someone leaves, and my friend starts to run. I manage to keep up, but only just. They start talking on their phone to another friend of mine. They turn around in a pathway, and run back the way we came, running past me. As they pass me, they smile, but they do not say anything. I continue on my way to my friend's house, but awake before arriving.
+
+Source:
+
+Seeing friend on FB.
+
+Meaning:
+
+?
