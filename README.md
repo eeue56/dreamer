@@ -4,6 +4,16 @@ dreamer
 Dream journal of lucid dreamer
 
 
+The man eating pig
+------------------
+
+In my livig room with childhood friends. I'm about 6 years old. Upstairs, there is noise and weird things happening in what should be parents bedroom. A woman comes and takes a child every 5 minutes or so. The children don't come back. There's about 5 of us left, and when the woman comes we hide. She finds me and takes me by the hand. I am crying. I am in my parent's bedroom. There's a cauldren in the middle of the room. The contents is red and gooey. It is being stirred by a pig, walking on his legs. I know that he is the diafol. He picks me up and puts me in the cauldren. I scream as I melt.
+
+Source: ?
+
+Meaning: ?
+
+
 The barn
 --------
 
