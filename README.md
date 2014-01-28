@@ -84,3 +84,8 @@ The trip
 --------
 
 We go to Europe to some weird Olympics like event where everything is mostly done virtually. We attend various events, some of which require us to wear rift-like things and crawl through caves to reach them. We go to a shop to attempt to buy food. We meet a couple there who are 30ish. We start to travel around the country together.
+
+Guns
+
+weird villiage
+weird house
